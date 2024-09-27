@@ -5,4 +5,4 @@
 ### Хобби:
 Люблю заниматься активным отдыхом, путешествовать и играть на гитаре.
 
-![Путешествие на Аркаим](https://drive.google.com/file/d/1pIEHjuOm8IjCQ2t0nnIQb7Pa2cM6Wr7Z/view?usp=drive_link)
+![Путешествие на Аркаим](IMG_4919.JPG)
